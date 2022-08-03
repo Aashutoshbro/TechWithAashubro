@@ -17,6 +17,6 @@
 ####  Improve existing skills<br>
 #### 🎥 Improve existing skills<br>
 #### 🎤 Learn people skills<br>
-#### 🕐 It’s empowering to be able to make changes, even small ones
+#### 🕐 It’s empowering to be able to make changes, even small ones...
 ---
 
